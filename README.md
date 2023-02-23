@@ -1,0 +1,1 @@
+# operator-dersi-patika.dev
